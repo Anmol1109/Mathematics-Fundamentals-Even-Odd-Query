@@ -1,0 +1,1 @@
+# Mathematics-Fundamentals-Even-Odd-Query
